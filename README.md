@@ -23,5 +23,3 @@ JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG JUNG
 
 OPEN LICENSE BEBBEH
 ---
-
-Sorry this man is not going to go the extra mile, you must suffer as I did thank you and good bye. One Love always though! hehehehehehehehhehehe
