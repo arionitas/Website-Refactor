@@ -1,7 +1,4 @@
 # Website-Refactor
-# theme: minima
-# Website-Refactor
-# <Website-Refactor>
 
 # Deployed Project
 
