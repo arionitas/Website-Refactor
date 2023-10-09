@@ -1,6 +1,6 @@
 # Website-Refactor
 
-# Deployed Project
+## Deployed Project
 
 https://arionitas.github.io/Website-Refactor/
 
